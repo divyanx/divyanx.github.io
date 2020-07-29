@@ -1,2 +1,2 @@
-# divyanx.github.io
-love you baby
+# divyanx.com
+website under construction
